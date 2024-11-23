@@ -4,6 +4,8 @@ Plants vs. Zombies (PvZ) adalah favorit abadi, tetapi SuperHybrid.Online PVZ APK
 
 ## Unduh Di Sini : [SuperHybrid.Online PVZ APK](https://apkfyp.com/superhybridonline.html)
 
+## Unduh Di Sini : [SuperHybrid.Online PVZ APK](https://apkfyp.com/superhybridonline-pvz.html)
+
 ![image](https://github.com/user-attachments/assets/c256e1b4-61cd-4765-87f9-6241dbee2bc8)
 
 
